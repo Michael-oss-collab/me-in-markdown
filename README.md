@@ -8,6 +8,6 @@ During my summer, I went to Las Vegas for a basketball tournament which we lost 
 A summer memory that I have with my friends is when I went to six flags with my AAU basketball team. I had a lot of fun and it was great to hang out with them because they are some of my best friends. Some of my experiences have shown me how doing things in life that are joyful are so important to make memories. That is why even though this year I am going to have a lot of work and pressure on my classes, I want to improve my time management so that I can have as little stress as possible during this school year.
 
 # Spotify Playlist
-[My Spotify Playlist]()
+[My Spotify Playlist](https://open.spotify.com/playlist/6oF6SiQEKsdXiZcvuoiQCv)
 # Image Collage
 ![My collage](collage.png)
