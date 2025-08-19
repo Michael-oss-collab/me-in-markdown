@@ -6,3 +6,7 @@ In my ninth grade year, I got all A's and a goal I have this school year is to a
 During my summer, I went to Las Vegas for a basketball tournament which we lost in the championship. I also went to Cancun with my family. In cancun, I went snorkling and ate really good food. Lastly, during my Summer, I had summer basketball for Chatsworth and I am playing on varsity. I am working hard so that I can make sure I have a good season. In addition, in this computer science class, I hope to learn more about how to code more complex apps. 
 
 A summer memory that I have with my friends is when I went to six flags with my AAU basketball team. I had a lot of fun and it was great to hang out with them because they are some of my best friends. Some of my experiences have shown me how doing things in life that are joyful are so important to make memories. That is why even though this year I am going to have a lot of work and pressure on my classes, I want to improve my time management so that I can have as little stress as possible during this school year.
+
+# Spotify Playlist
+
+# Image Collage
